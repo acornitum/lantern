@@ -1,4 +1,4 @@
-a little scuffed but it's a minecraft lanturn! cad'ed in ~3h on a trip in sf because why not
+a little scuffed but it's a minecraft lantern! cad'ed in ~3h on a trip in sf because why not
 
 put together with [tongyu](https://github.com/bucketfish)!! we spray painted it just a couple hours before the flight to la (for campfire flagship!)
 
